@@ -1,0 +1,2 @@
+# GoblynSkum.github.io
+General
